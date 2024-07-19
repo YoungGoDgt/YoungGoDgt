@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @YoungGoDgt
+- 👋 Salam , man mohammad hastm
 - 
 - DiscordID : younggod5512
 - 
-- Our Club : https://discord.gg/NGr8zFXC5z 
+- Club Ma : https://discord.gg/NGr8zFXC5z
